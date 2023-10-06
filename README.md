@@ -39,3 +39,6 @@ Hiram Chirino
 Jean-Baptiste Onofre
 
 Like I'm already tired of this xD I'll edit later.
+
+alright ! ngl the port id list made my head spin for a second. xD (WHOARETHESEPPL) 
+but i get it now. 
