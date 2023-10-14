@@ -1,44 +1,8 @@
 # heres-what-i-know
 The Read Me
 
-The people who I first started playing with are all involved. Brooke, AJ, Tahoe, Jonny, and company. That Ego is egoist. And Atsuko. There are cookies that I accidentally hand out to yall just by being on any internet. If I download chrome, edge, brave, or opera I simply have to go to chrome(orwhatever)://sync-internals to see all the shit that gives you. Horrifying. 
+sometimes I don't even know what I'm doing and I forgot what I've been researching for hours and then suddenly look up and see the most random shit I've ever seen ... but then I also see one of the names. 
 
-That you all are literally the dumbest smart people I've ever come across. 
+I know it's been a nuisance, trying to figure out if the certain pairings actually could go together if if that is actually a good direction ... but I must be doing something right because I'm not some con. a blue schemed theme staring  your your $400+ tickets
 
-You refuse to accept what I say and the evidence because you... THINK you're right? 
-
-I'm gonna just include the fake names too because sorting through the names is bullshit. 
-
-Bryan Bishop
-Micah Jenkins
-Lori Glidersleeve (like really?)
-Chris Land
-Raven Everidge
-Jon Schlinkert
-Travis Kaufman
-Matt Greer 
-David Garza
-Brit Taylor
-Jake Walker 
-Megan Wu 
-Joshua Bolin
-Robert Becerra
-Felix Cheung 
-Madison Fitch
-James Addison
-Jennifer Spriggs
-Robert Liguori
-Aaron Mulder
-Adrian Co
-Bruce Snyder 
-Chris Custine
-David Jencks (always wondered wtf that stood for) 
-Freeman Fang
-Guillaume Nodet
-Hiram Chirino 
-Jean-Baptiste Onofre
-
-Like I'm already tired of this xD I'll edit later.
-
-alright ! ngl the port id list made my head spin for a second. xD (WHOARETHESEPPL) 
-but i get it now. 
+hm. i wonder if its close by or online.... 
